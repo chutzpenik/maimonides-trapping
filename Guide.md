@@ -9,7 +9,7 @@
 1: Gather a group of initiates who want The Real Thing™️ (see above). <br>
 2: Tell everybody else they can have the freemium version. <br>
 3: Make obscure gestures for the premium members. <br>
-4: Once they figure it out, repeat step one. <br>
+4: Once they all figure it out, repeat step one. <br>
 <br>
 ... <br>
 <br>
