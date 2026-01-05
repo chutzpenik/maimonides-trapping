@@ -1,4 +1,4 @@
-Maimonides-Trapping; or, a Guide for the Perplexed <br>
+**Maimonides-Trapping; or, A Guide for the Perplexed** <br>
 <br><br>
 Step 1: Take the title or form of an existing thing. You'll want to tweak it, maybe. <br>
 Step 2: Replace some of the content. You can even swap it for its opposite. <br>
