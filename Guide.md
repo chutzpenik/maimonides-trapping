@@ -1,6 +1,6 @@
 **Maimonides-Trapping; or, A Guide for the Perplexed** <br>
 <br><br>
-1: Take the title or form of an existing thing. You'll want to tweak it, maybe. <br>
+Step 1: Take the title or form of an existing thing. You'll want to tweak it, maybe. <br>
 2: Replace some content. You can even swap the content for its opposite. <br>
 3: Repeat again, and again, and then, try to survive the flood. <br>
 <br>
@@ -9,7 +9,7 @@
 1: Gather a group of initiates who want The Real Thing™️ (see above). <br>
 2: Tell everybody else they can have the freemium version. <br>
 3: Make obscure gestures for the premium members. <br>
-4: Once they all figure it out, repeat step one. <br>
+4: Once they figure it out, repeat step one. <br>
 <br>
 ... <br>
 <br>
