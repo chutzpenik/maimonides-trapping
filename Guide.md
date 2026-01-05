@@ -14,7 +14,7 @@ Step 4: Once they figure it out, repeat step one. <br>
 Step 1: Your Lord? He's my God, too. <br>
 Step 2: We were all slaves, but here and now, we can be co-masters. <br>
 Step 3: Follow the rules (see above). <br>
-Step 4: Take the show on the road. Lose the schmucks along the way. <br>
+Step 4: Take the show on the road, and lose the schmucks along the way. <br>
 Step 5: Remember to give thanks to the Lord, *our* God. <br>
 <br>
 ... <br>
